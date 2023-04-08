@@ -6,7 +6,7 @@
 
 👨‍💻 I am currently working as a solo indie game developer and i have past work experience as a web developer.
 
-👨‍ I’m hard-working, disciplined and extremely passionate about game development.
+👨‍ I’m hard-working, disciplined and extremely passionate about creating high quality games.
 
 📧 How to reach me **panos.mousenikas@gmail.com**
 
